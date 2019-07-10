@@ -126,6 +126,20 @@ C'est une technique qui peut coûter assez cher (pour acheter les tickets de par
 
 # 7) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
 
+Dernier petit sujet un peu sensible de ce mini guide : Comment kiffer les Idols en toute sécurité et sans risque de froisser sa petite amie / sa femme.  
+
+Déjà 2 petites choses en préambule :
+- Ça dépend à quel point elle compte a vous yeux x) si vous êtes fou amoureux, vous en ferez peut être moins, et si vous ne l'êtes pas, vous en ferez peut être plus ? Haha
+- Dans tous les cas, rien de mieux que d'en discuter avec elle au préalable, afin d'essayer de définir ce qui est ok et ce qui ne l'est pas.  
+
+En règle général, tout ce qui montre que vous portez beaucoup d'attention à vos Idols, potentiellement plus qu'à votre compagne dérange.
+Évitez les comportements démesurés (mugen loop a proscrire), les comportements démontrant de l'affection (les lettres et cadeaux), ainsi que les comportements qui peuvent la faire se sentir comme étant au second plan de votre vie (il faut évidemment lui dire qu'elle est plus belles que les Idols a vos yeux), et surtout, tout lui raconter pour ne pas qu'elle s'imagine n'importe quoi et s'inquiète.  
+
+Ce qui nous laisse :
+- Les lives (open bar, à fond, gachikoi & co à proscrire cependant)
+- La petite photo souvenir avec le groupe
+
+Et voilà... Pas facile hein :)
 
 [Work In Progress]
 
