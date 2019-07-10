@@ -119,7 +119,6 @@ Pour le départ, c'est généralement assez court (sauf pour les Idols moins con
 
 # 6) Faire des loops infinis
 
-
 [Work In Progress]
 
 
