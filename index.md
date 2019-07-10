@@ -138,7 +138,9 @@ En règle général, tout ce qui montre que vous portez beaucoup d'attention à 
 Ce qui nous laisse :
 - Les lives (open bar, à fond, gachikoi & co à proscrire cependant)
 - La petite photo souvenir avec le groupe
+- La dédicace
 
+Finalement ce que vous pourriez faire pour des artistes classiques.  
 Et voilà... Pas facile hein :)
 
 [Work In Progress]
