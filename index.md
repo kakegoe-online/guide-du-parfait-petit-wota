@@ -18,8 +18,6 @@ Avec l'arrivée d'une nouvelle vague de fans cette année, j'ai pensé que cela 
 7) Faire des loops infinis
 8) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
 
-==========================
-
 # 1) Quels sont les différences entre les Idols au Japon et les Idols @ JE ?
 
 Il existe de nombreuses différences importantes entre le fait de voir les Idols à Japan Expo ou au Japon.  
