@@ -117,6 +117,14 @@ Pour le départ, c'est généralement assez court (sauf pour les Idols moins con
 
 # 6) Faire des loops infinis
 
+Attention, nous arrivons dans les techniques assez avancées, qui ne sont pas destinées à tout le monde.  
+Ces techniques peuvent potentiellement engendrer des moments forts et inoubliables, mais elles sont parfois à double tranchant et peuvent également engendrer de la déception si mal utilisées.  
+
+La technique du loop infini (ou mugen loop en japonais) consiste tout simplement à enchaîner les tokutenkai (handshake ou cheki, ou les deux !) en boucle, jusqu'à être le seul à faire la queue et faire le tant convoité "kagi shime" (soit la fermeture de porte en français haha). 
+
+C'est une technique qui peut coûter assez cher (pour acheter les tickets de participations aux tokutenkai), qu demande beaucoup d'énergie (car on enchaine sans arrêter, avec ouais très peu de temps pour réfléchir entre chaque loop), mais cela permet de multiplier les expériences et discussions avec ses Idols favorites, et potentiellement créer un lien fort (à minima unidirectionnel si vous profitez a fond) avec elles.  
+
+
 [Work In Progress]
 
 > ***Handshake**: passage où l'on peut discuter bien souvent avec chaque membre du groupe pendant 4-5 secondes en leur serrant la main  
