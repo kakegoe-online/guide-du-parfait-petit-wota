@@ -14,9 +14,9 @@ Avec l'arrivée d'une nouvelle vague de fans cette année, j'ai pensé que cela 
 2) Que préparer avant JE ? (Kakegoe, live, équipement, cadeaux, Ticket Zen)
 3) Comment se comporter avec les Idols ?
 4) Combien d'argent est nécessaire pendant JE ?
-6) Aller accueillir / dire au revoir aux Idols à l'aéroport : Bonne ou mauvaise idée ?
-7) Faire des loops infinis
-8) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
+5) Aller accueillir / dire au revoir aux Idols à l'aéroport : Bonne ou mauvaise idée ?
+6) Faire des loops infinis
+7) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
 
 # 1) Quels sont les différences entre les Idols au Japon et les Idols @ JE ?
 
@@ -123,6 +123,8 @@ Ces techniques peuvent potentiellement engendrer des moments forts et inoubliabl
 La technique du loop infini (ou mugen loop en japonais) consiste tout simplement à enchaîner les tokutenkai (handshake ou cheki, ou les deux !) en boucle, jusqu'à être le seul à faire la queue et faire le tant convoité "kagi shime" (soit la fermeture de porte en français haha). 
 
 C'est une technique qui peut coûter assez cher (pour acheter les tickets de participations aux tokutenkai), qu demande beaucoup d'énergie (car on enchaine sans arrêter, avec ouais très peu de temps pour réfléchir entre chaque loop), mais cela permet de multiplier les expériences et discussions avec ses Idols favorites, et potentiellement créer un lien fort (à minima unidirectionnel si vous profitez a fond) avec elles.  
+
+# 7) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
 
 
 [Work In Progress]
