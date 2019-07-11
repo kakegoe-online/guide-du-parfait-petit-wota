@@ -17,6 +17,7 @@ Avec l'arrivée d'une nouvelle vague de fans cette année, j'ai pensé que cela 
 5) Aller accueillir / dire au revoir aux Idols à l'aéroport : Bonne ou mauvaise idée ?
 6) Faire des loops infinis
 7) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
+8) Qu'est ce que le trauma post JE et comment le gérer ?
 
 # 1) Quels sont les différences entre les Idols au Japon et les Idols @ JE ?
 
@@ -137,11 +138,15 @@ En règle général, tout ce qui montre que vous portez beaucoup d'attention à 
 
 Ce qui nous laisse :
 - Les lives (open bar, à fond, gachikoi & co à proscrire cependant)
-- La petite photo souvenir avec le groupe
-- La dédicace
+- La petite photo / cheki souvenir avec le groupe
+- La dédicace souvenir
+- Quelques photos / vidéos courtes prises avec votre téléphone (le mot quelque est important !) 
+- Les soirées entre wotas
 
 Finalement ce que vous pourriez faire pour des artistes classiques.  
 Et voilà... Pas facile hein :)
+
+# 8) Qu'est ce que le trauma post JE et comment le gérer ?
 
 [Work In Progress]
 
