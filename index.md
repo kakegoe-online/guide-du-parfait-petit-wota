@@ -10,14 +10,14 @@ Apprécier la venue d'idols @ Japan Expo a vraiment ou toute autre saveur que de
 
 Avec l'arrivée d'une nouvelle vague de fans cette année, j'ai pensé que cela pourrait être intéressant de partager mon expérience et point de vue sur cet événement bien atypique. Bien sûr je ne prétends pas avoir l'unique vision possible à le sujet, mais j'espère que ça pourra servir de base de discussion, ne serait-ce que pour comprendre à quoi s'attendre @ Japan Expo Idol Festival :)
 
-1) Quels sont les différences entre les Idols au Japon et les Idols @ JE ?
-2) Que préparer avant JE ? (Kakegoe, live, équipement, cadeaux, Ticket Zen)
-3) Comment se comporter avec les Idols ?
-4) Combien d'argent est nécessaire pendant JE ?
-5) Aller accueillir / dire au revoir aux Idols à l'aéroport : Bonne ou mauvaise idée ?
-6) Faire des loops infinis
-7) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
-8) Qu'est ce que le trauma post JE et comment le gérer ?
+- 1) Quels sont les différences entre les Idols au Japon et les Idols @ JE ?
+- 2) Que préparer avant JE ? (Kakegoe, live, équipement, cadeaux, Ticket Zen)
+- 3) Comment se comporter avec les Idols ?
+- 4) Combien d'argent est nécessaire pendant JE ?
+- 5) Aller accueillir / dire au revoir aux Idols à l'aéroport : Bonne ou mauvaise idée ?
+- 6) Faire des loops infinis
+- 7) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
+- 8) Qu'est ce que le trauma post JE et comment le gérer ?
 
 # 1) Quels sont les différences entre les Idols au Japon et les Idols @ JE ?
 
