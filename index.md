@@ -98,6 +98,8 @@ En dehors de ça, un autre gros budget à prendre en compte : le budget de parti
 
 Sur ce sujet vous êtes le seul maître à bord. Prévoyez néanmoins de ne pas vous retrouver bloquer à un moment (mince je n'ai plus d'argent mais c'est la dernière fois que je les vois et je voulais faire une photo souvenir). "Mieux vaut des remords que des regrets".
 
+![Shut up and take my money](/takemymoney-1.jpg)
+
 # 5) Aller accueillir / dire au revoir aux Idols à l'aéroport : Bonne ou mauvaise idée ?
 
 Marquant le début de Japan Expo ou signalant sa fin, l'aéroport est un évènement à part entière, avec une saveur toute particulière.
