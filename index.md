@@ -150,6 +150,6 @@ Et voilà... Pas facile hein :)
 
 [Work In Progress]
 
-> ** *Handshake**: passage où l'on peut discuter bien souvent avec chaque membre du groupe pendant 4-5 secondes en leur serrant la main  
-> ** *Cheki**: photo instantanée polaroïd  
-> ** *Tokutenkai**: Session de handshake, cheki, etc., Session dédiée initialement à remercier les fans pour leurs achats  
+> * **Handshake**: passage où l'on peut discuter bien souvent avec chaque membre du groupe pendant 4-5 secondes en leur serrant la main  
+> * **Cheki**: photo instantanée polaroïd  
+> * **Tokutenkai**: Session de handshake, cheki, etc., Session dédiée initialement à remercier les fans pour leurs achats  
