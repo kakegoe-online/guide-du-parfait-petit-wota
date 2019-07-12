@@ -173,6 +173,9 @@ Bonus : Même si généralement c'est une bonne idée de choisir une membre pré
 
 # 9) Qu'est ce que le Trauma post JE et comment le gérer ?
 
+[![oshi ni aitai](IMG_20190712_161503.jpg)](https://twitter.com/peroperorinko01/status/1105478703641812992?s=09)  
+*Copyright Perorin Sensei [@peroperorinko01](https://twitter.com/peroperorinko01?s=09)*
+
 En général comment reconnaître si l'on a passé une bonne JE ou non : mesurer son trauma post JE :D.  
 
 Le Trauma post JE se matérialise par un manque fort, une envie de revoir les Idols vues à Japan Expo, revoir les autres wota, crier des calls, etc.
