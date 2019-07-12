@@ -138,9 +138,13 @@ Dans tous les cas, rien de plus agréable que d'arriver le dernier jour, voir so
 Les différents niveaux :
 - Pas de reconnaissance particulière
 - Reconnaissance en tant que fan du groupe ou d'une membre du groupe (via les goods portés, t-shirt, towel, etc.)
--
+- Reconnaissance personnelle (elle se souvient de vous avoir vu a un live, a un évent particulier, etc.)
+- Reconnaissance personnelle+ (elle se souvient de votre nom)
+Niveaux dangereux (compliqués à Japan Expo, plus adapté au Japon)
+- Elle est jalouse que vous alliez voir d'autre Idols
+- Elle est triste quand vous n'allez pas la voir
 
-[Work In Progress]
+Dans tous les cas, il est important de savoir apprécier ces petites attentions, sans forcément trop les forcer, mais savoir rester alerte :)
 
 # 8) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
 
