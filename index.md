@@ -16,8 +16,9 @@ Avec l'arrivée d'une nouvelle vague de fans cette année, j'ai pensé que cela 
 - 4) Combien d'argent est nécessaire pendant JE ?
 - 5) Aller accueillir / dire au revoir aux Idols à l'aéroport : Bonne ou mauvaise idée ?
 - 6) Faire des loops infinis
-- 7) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
-- 8) Qu'est ce que le trauma post JE et comment le gérer ?
+- 7) Se faire reconnaître par son Idol en tant que fan 
+- 8) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
+- 9) Qu'est ce que le Trauma post JE et comment le gérer ?
 
 # 1) Quels sont les différences entre les Idols au Japon et les Idols @ JE ?
 
@@ -127,7 +128,16 @@ La technique du loop infini (ou mugen loop en japonais) consiste tout simplement
 
 C'est une technique qui peut coûter assez cher (pour acheter les tickets de participations aux tokutenkai), qu demande beaucoup d'énergie (car on enchaine sans arrêter, avec ouais très peu de temps pour réfléchir entre chaque loop), mais cela permet de multiplier les expériences et discussions avec ses Idols favorites, et potentiellement créer un lien fort (à minima unidirectionnel si vous profitez a fond) avec elles.  
 
-# 7) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
+# 7) Se faire reconnaître par son Idol en tant que fan
+
+Pas vraiment une technique, mais un vrai sujet de fond : Se faire reconnaître son Idol en tant que fan.
+
+Ce n'est pas forcément quelque chose d'obligatoire, et si c'est trop forcé, ça perd de sa saveur, donc c'est quelque chose qui peut arriver à plusieurs niveaux.  
+Dans tous les cas, rien de plus agréable que d'arriver le dernier jour, voir son Idol préféré vous faire un petit sourire et un petit coucou, voire même vous appeler par votre prénom (parce qu'elle vous l'a demandé hein, pas parceque vous lui avez répété pendant 4 jours x), jouer avec vous, etc.
+
+[Work In Progress]
+
+# 8) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
 
 Dernier petit sujet un peu sensible de ce mini guide : Comment kiffer les Idols en toute sécurité et sans risque de froisser sa petite amie / sa femme.  
 
@@ -148,9 +158,25 @@ Ce qui nous laisse :
 Finalement ce que vous pourriez faire pour des artistes classiques.  
 Et voilà... Pas facile hein :)
 
-# 8) Qu'est ce que le trauma post JE et comment le gérer ?
+Bonus : Même si généralement c'est une bonne idée de choisir une membre préférée pour une question de coût (moins cher de prendre un cheki à 2 qu'avec tout le groupe). Il n'est pas impossible que la décision d'une membre préférée fasse de la peine à votre compagne, surtout si celle-ci est choisie minutieusement, et pas simplement en quelques secondes avant même de les rencontrer.
 
-[Work In Progress]
+# 9) Qu'est ce que le Trauma post JE et comment le gérer ?
+
+En général comment reconnaître si l'on a passé une bonne JE ou non : mesurer son trauma post JE :D.  
+
+Le Trauma post JE se matérialise par un manque fort, une envie de revoir les Idols vues à Japan Expo, revoir les autres wota, crier des calls, etc.
+En meme temps après avoir passé 4 jours non stop dans une ambiance totalement déjantée, à courir partout pour ne pas louper les évents de ses Idols préférées, à dormir quelques heures à peine, se déchaîner dans les lives, et surtout vivre des moments forts et exceptionnels ! Le retour à la réalité et au train train quotidien est très dur... (En lien avec le chapitre précédent, faire attention de se maîtriser et de ne pas trop le laisser paraître à sa compagne, sous peine qu'elle le ressente mal).  
+
+Le Trauma post JE se gère généralement de la même manière que la préparation pré JE : en regardant des lives, en répondant sur Twitter, et surtout élément souvent clé : en discutant avec ses potes wota, et en faisant des guérilla resto pour pouvoir déprimer gaiement ensemble haha.
+
+# Que la force du wota soit avec vous
+
+Voilà c'est tout pour ce petit guide. J'espère qu'il vous aura plus et qu'il aura au moins pu vous donner un avis sur divers sujets lié à la venue des Idols @ Japan Expo.  
+Encore une fois, je ne prétends pas avoir LA réponse unique à chacun des sujets, mais c'est ma vision actuelle après avoir pu profiter pleinement de nombreuses Japan Expo Idol Festival :).  
+
+Si vous avez des questions, remarques ou autre, n'hésitez pas à me contacter directement sur Twitter @vivi_mugendai
+
+Que le wota soit avec vous !
 
 > * **Handshake**: passage où l'on peut discuter bien souvent avec chaque membre du groupe pendant 4-5 secondes en leur serrant la main  
 > * **Cheki**: photo instantanée polaroïd  
