@@ -132,6 +132,9 @@ C'est une technique qui peut coûter assez cher (pour acheter les tickets de par
 
 # 7) Se faire reconnaître par son Idol en tant que fan
 
+[![resu kure](CYMERA_20190712_191727.jpg)](
+https://line.me/S/sticker/1076172/?lang=en&ref=gnsh_stickerDetail)
+
 Pas vraiment une technique, mais un vrai sujet de fond : Se faire reconnaître son Idol en tant que fan.
 
 Ce n'est pas forcément quelque chose d'obligatoire, et si c'est trop forcé, ça perd de sa saveur, donc c'est quelque chose qui peut arriver à plusieurs niveaux.  
