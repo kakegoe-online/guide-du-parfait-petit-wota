@@ -35,6 +35,8 @@ Outre ces quelques points déjà assez intéressants, il faut également noter u
 
 Tous ces petits points contribuent grandement à ce que chaque Japan Expo spit un évènement unique et inoubliable pour tout le monde.
 
+![MCZ_Japan_Expo_13](MCZ_Japan_Expo_13.jpg)
+
 # 2) Que préparer avant JE ?
 
 La première chose qui peut sembler évidente, c'est d'écouter les musiques, idéalement en version live pour s'habituer aux calls, des groupes venant à Japan Expo. Pour Des raisons de préférence et/ou de temps, on peut également se concentrer sur un seul groupe (ce qui peut comporter quelque risques, comme par exemple que le groupe choisi ne soit présent que 2 jours sur les 4 de Japan Expo)
