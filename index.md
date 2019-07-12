@@ -135,6 +135,11 @@ Pas vraiment une technique, mais un vrai sujet de fond : Se faire reconnaître s
 Ce n'est pas forcément quelque chose d'obligatoire, et si c'est trop forcé, ça perd de sa saveur, donc c'est quelque chose qui peut arriver à plusieurs niveaux.  
 Dans tous les cas, rien de plus agréable que d'arriver le dernier jour, voir son Idol préféré vous faire un petit sourire et un petit coucou, voire même vous appeler par votre prénom (parce qu'elle vous l'a demandé hein, pas parceque vous lui avez répété pendant 4 jours x), jouer avec vous, etc.
 
+Les différents niveaux :
+- Pas de reconnaissance particulière
+- Reconnaissance en tant que fan du groupe ou d'une membre du groupe (via les goods portés, t-shirt, towel, etc.)
+-
+
 [Work In Progress]
 
 # 8) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
