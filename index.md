@@ -19,6 +19,7 @@ Avec l'arrivée d'une nouvelle vague de fans cette année, j'ai pensé que cela 
 - 7) Se faire reconnaître par son Idol en tant que fan 
 - 8) Quelles sont les erreurs à éviter / précautions à prendre pour passer une bonne JE sans froisser sa partenaire ?
 - 9) Qu'est ce que le Trauma post JE et comment le gérer ?
+- 10) Le gachikoi (tomber amoureux d'une Idol) : puissant mais dangereux ?
 
 # 1) Quels sont les différences entre les Idols au Japon et les Idols @ JE ?
 
@@ -185,6 +186,10 @@ Le Trauma post JE se matérialise par un manque fort, une envie de revoir les Id
 En meme temps après avoir passé 4 jours non stop dans une ambiance totalement déjantée, à courir partout pour ne pas louper les évents de ses Idols préférées, à dormir quelques heures à peine, se déchaîner dans les lives, et surtout vivre des moments forts et exceptionnels ! Le retour à la réalité et au train train quotidien est très dur... (En lien avec le chapitre précédent, faire attention de se maîtriser et de ne pas trop le laisser paraître à sa compagne, sous peine qu'elle le ressente mal).  
 
 Le Trauma post JE se gère généralement de la même manière que la préparation pré JE : en regardant des lives, en répondant sur Twitter, et surtout élément souvent clé : en discutant avec ses potes wota, et en faisant des guérilla resto pour pouvoir déprimer gaiement ensemble haha.
+
+# 10) Le gachikoi (tomber amoureux d'une Idol) : puissant mais dangereux ?
+
+ [Work in progress]
 
 # Que la force du wota soit avec vous
 
