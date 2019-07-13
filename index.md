@@ -196,7 +196,7 @@ Le Trauma post JE se gère généralement de la même manière que la préparati
 Voilà c'est tout pour ce petit guide. J'espère qu'il vous aura plus et qu'il aura au moins pu vous donner un avis sur divers sujets lié à la venue des Idols @ Japan Expo.  
 Encore une fois, je ne prétends pas avoir LA réponse unique à chacun des sujets, mais c'est ma vision actuelle après avoir pu profiter pleinement de nombreuses Japan Expo Idol Festival :).  
 
-Si vous avez des questions, remarques ou autre, n'hésitez pas à me contacter directement sur Twitter @vivi_mugendai
+Si vous avez des questions, remarques ou autre, n'hésitez pas à me contacter directement sur kakegoe.online@gmail.com
 
 Que le wota soit avec vous !
 
